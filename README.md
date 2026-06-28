@@ -1,4 +1,4 @@
-![wangxian](https://github.com/Jvpiterz/Jvpiterz/assets/137885580/05b95343-8af6-4722-8c1d-f2cf5f220a2d)
+![wangxian](https://64.media.tumblr.com/351ae24de7971d37d7b7be38b2f41ab6/tumblr_pc8k1odjUs1wuuof9o3_1280.jpg)
 ## ⤑ ?!   callisto's info!_  !?
 ### ▶︎ •၊၊||၊|။||||။‌‌‌‌‌၊|• 03:15
 ##  2006 ꒰ᐢ. .ᐢ꒱ agender / any pronouns
